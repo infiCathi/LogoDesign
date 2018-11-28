@@ -1,2 +1,2 @@
 # Logo Design
-Logo designs
+Created for companies or individuals per request.
