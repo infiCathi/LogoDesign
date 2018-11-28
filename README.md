@@ -1,2 +1,2 @@
-# LogoDesign
+# Logo Design
 Logo designs
