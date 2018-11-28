@@ -1,2 +1,2 @@
 # LogoDesign
-Logo designs for companies.
+Logo designs
